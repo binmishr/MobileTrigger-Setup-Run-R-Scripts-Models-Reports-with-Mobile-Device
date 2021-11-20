@@ -1,0 +1,1 @@
+# MobileTrigger-Setup-Run-R-Scripts-Models-Reports-with-Mobile-Device
